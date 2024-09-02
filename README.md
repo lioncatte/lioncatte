@@ -8,7 +8,6 @@ Troy's GitHub stats
 
 > Based out of Chicago, Illinois and Tokyo, Japan. 🎶
 
-Feel free to connect with me on [Linkedin](https://www.linkedin.com/in/troyd41/)
 
 
 >  ***Bilingual*** 🌏
